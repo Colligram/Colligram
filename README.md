@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Colligram
 - 👀 I’m interested in web application development
-- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate with anybody on his project
 - 📫 Feel free to reach out .EMAIL:locozoombady@gmail.com.....phone:+254743686810
 
